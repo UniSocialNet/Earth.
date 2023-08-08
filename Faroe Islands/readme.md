@@ -1,0 +1,1 @@
+- [The most astonishing island I've ever seen - welcome to Kalsoy in The Faroe Islands...](https://youtu.be/_o1ZXpyJGg0)
