@@ -1,1 +1,2 @@
 - [La Palma volcano: Drone video shows black lava swallowing pool, homes on its way to coast](https://youtu.be/M0Jas0c_LnQ)
+- [La Palma volcano engulfs village minutes after residents flee their homes - BBC News](https://youtu.be/kjg-1BemSOo)
