@@ -1,0 +1,1 @@
+- [Eight permanent lava lakes of the Earth!](https://youtu.be/fXd4lMU_8zs)
