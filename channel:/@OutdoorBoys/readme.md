@@ -1,0 +1,3 @@
+https://www.youtube.com/@OutdoorBoys
+
+- [Winter Camping in Remote Survival Cabin](https://youtu.be/nEj00Gy0SFI)
