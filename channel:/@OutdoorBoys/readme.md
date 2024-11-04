@@ -7,5 +7,6 @@ https://www.youtube.com/@OutdoorBoys
 - https://youtu.be/7EgTPPduIQE
 - https://youtu.be/QM7LhZ_JWZY
 - https://youtu.be/NagvWwLvRik
+- https://youtu.be/Q-wCyYtLX6s
 
 https://www.youtube.com/@OutdoorBoys/search?query=africa
