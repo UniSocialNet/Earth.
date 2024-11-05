@@ -6,3 +6,7 @@ https://www.youtube.com/results?search_query=Greenland+spring
 
 # in Summer
 https://www.youtube.com/results?search_query=Greenland+summer
+
+# people.
+https://www.youtube.com/@monetizabeth
+- https://youtu.be/jaimAi6oL94
